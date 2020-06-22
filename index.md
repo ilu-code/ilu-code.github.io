@@ -9,3 +9,5 @@ Havald ist die Hauptperson in den aufeinander aufbauenden Romanreihen "Das Gehei
 * sehr zynisch
 * tötet regelmäßig Nekromanten
 * hat viel Zeit in Verließen verbracht
+
+> Zu den Göttern, für Askir, die Kaiserin, unsere Ehre und die Pflicht!
