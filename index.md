@@ -11,3 +11,5 @@ Havald ist die Hauptperson in den aufeinander aufbauenden Romanreihen "Das Gehei
 * hat viel Zeit in Verließen verbracht
 
 > Zu den Göttern, für Askir, die Kaiserin, unsere Ehre und die Pflicht!
+
+<img src="https://vignette.wikia.nocookie.net/askir/images/d/d3/Die_komplette_Saga_2.jpg/revision/latest?cb=20141206141447&path-prefix=de/>
